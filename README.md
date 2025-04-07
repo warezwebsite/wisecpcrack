@@ -6,7 +6,7 @@
 
 📦 Paylaşılan İçerik: Cracklenmiş (lisanssız) WISECP teması
 
-📥 İndirme Linki: [Dosyayı İndir (RAR)](https://s6.dosya.tc/server22/pk1vkz/Hostlun_Wisecp.rar)
+📥 İndirme Linki: https://s6.dosya.tc/server22/mvvaoq/Hostlun_Wisecp.rar.html
 
 
 📝 Açıklama:
